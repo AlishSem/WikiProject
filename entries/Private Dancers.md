@@ -1,0 +1,1 @@
+The group chat that is going to die 
